@@ -1,0 +1,1 @@
+# turtkul_kartasi
